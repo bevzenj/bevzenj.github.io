@@ -1,1 +1,1 @@
-# https://bevzenj.github.io/resume/
+# https://bevzenj.github.io/task22_04/
