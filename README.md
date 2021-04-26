@@ -1,1 +1,1 @@
-# bevzenj.github.io
+# https://bevzenj.github.io/resume/
